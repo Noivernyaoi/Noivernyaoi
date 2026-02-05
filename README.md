@@ -2,6 +2,7 @@
 
 • Basic DNI criteria. I don't have a proper DNI I block freely or just won't interact
 
+For Pony Town:
 • C + H whenever you feel like it.
 • W2I unless my status shows as online, but even then a whisper would be appreciated because I'm not always at my device or looking at the screen
 • Take inspiration whenever just don't blatantly copy my skin. 
