@@ -10,4 +10,4 @@
 
 • Fandoms I'm in are: The Amazing Digital Circus, Warrior Cats, Dandy's World, Regretevator, Sonic The Hedgehog, Object Shows, Pokémon, and Undertale/Deltarune
 
-<img width="2048" height="180" alt="image" src="https://github.com/user-attachments/assets/d2e5f250-5df1-436f-9d17-1f5382f7e668" />
+<img width="2048" height="211" alt="image" src="https://github.com/user-attachments/assets/167b5359-5c5a-4c70-9409-32a247ddf725" />
