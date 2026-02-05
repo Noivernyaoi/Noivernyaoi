@@ -1,6 +1,6 @@
 <img width="2048" height="1152" alt="image" src="https://github.com/user-attachments/assets/86e1bf41-75ba-4c27-b0be-c64e18c4d821" />
 
-• Basic DNI criteri. I don't have a proper DNI I block freely or just won't interact
+• Basic DNI criteria. I don't have a proper DNI I block freely or just won't interact
 
 • C + H whenever you feel like it.
 • W2I unless my status shows as online, but even then a whisper would be appreciated because I'm not always at my device or looking at the screen
