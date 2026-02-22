@@ -1,4 +1,4 @@
-<img width="2048" height="1152" alt="image" src="https://github.com/user-attachments/assets/d04785bc-509c-4ba6-84c5-66a57b9131e3" />
+<img width="2048" height="1152" alt="image" src="https://github.com/user-attachments/assets/a8159714-ef65-4b9a-9f7e-91ef28dd366d" />
 
 • Basic DNI criteria. I don't have a proper DNI I block freely or just won't interact
 
