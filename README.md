@@ -1,6 +1,8 @@
 <img width="2048" height="1152" alt="image" src="https://github.com/user-attachments/assets/a8159714-ef65-4b9a-9f7e-91ef28dd366d" />
 
-• Basic DNI criteria. I don't have a proper DNI I block freely or just won't interact
+• Basic DNI criteria. I don't have a proper DNI I block freely or just won't interact. 
+
+• With that being said though; -15 please do not interact or try to befried me. If I befriend you and then discover you're under 15 years old you will be blocked, no exceptions
 
 ![image](https://github.com/user-attachments/assets/1700e4f9-4198-4936-8e7c-e3686ef0f0c8)
 
