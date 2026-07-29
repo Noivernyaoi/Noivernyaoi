@@ -13,7 +13,7 @@ For Pony Town:
 
 <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/c98231fd-621e-47cd-acaa-b2012c704072" />
 
-• Fandoms I'm in are: The Amazing Digital Circus, Warrior Cats, Dandy's World, Regretevator, Sonic The Hedgehog, Object Shows, Pokémon, and Undertale/Deltarune
+• Fandoms I'm in are: The Amazing Digital Circus, Warrior Cats, Dandy's World, Regretevator, Sonic The Hedgehog, Object Shows, Pokémon, Animal Hospital, Die of Death and Undertale/Deltarune
 
 <img width="768" height="51" alt="image" src="https://github.com/user-attachments/assets/24dd69ee-eef7-42f1-9fae-7a0c01042adc" />
 
