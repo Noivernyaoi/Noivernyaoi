@@ -1,17 +1,21 @@
-<img width="1280" height="376" alt="image" src="https://github.com/user-attachments/assets/b8e046f4-2b9e-43a5-9992-5dfb1fdd358d" />
+<img width="1280" height="376" alt="image" src="https://github.com/user-attachments/assets/aa6471b9-205e-47ae-ba8a-d55dee1407af" />
 
-Basic DNI criteria. I don't care who you are or what you did, I block freely. Don't friend me if you're under 17 years old. I don't care when your birthday is.
+# ABT ME:
+* I am a DID SYS, Our main host is a Pomni Fictive.
+* Read my strawpage!! It is changing and updating every day!
+* I am a Yumeshipper. I do not gaf about doubles I'm not braindead
+* I am Profic. if you do not like that then feel free to block me I don't care
+* Whisper to interact with me, my chat is usually collapsed and I'm usually doing other things while sitting on the game
 
-<img width="1920" height="200" alt="image" src="https://github.com/user-attachments/assets/2198cee7-8d7d-49ec-99a9-9bfb1d247dd3" />
+# DNI:
+- I don't have a proper DNI list just don't be bigoted or stupid around me
+- Anyone under 16 is prohibited from speaking to or befriending me, you can sign my ata while being under this age range but don't interact with me in game.
+- Don't try talking to me if you're just going to try and pick a fight with me, I will ignore pr block you.
 
-For Pony Town: Whisper to Interact unless I'm actively moving around or talking to someone. A whisper would still be appreciated though because my chat is usually collapsed
+# Misc:
+* We're in a lot of fandoms, but our main ones are TADC, Sonic the Hedgehog, My Little Pony, Undertale/Deltarune, Warrior Cats, and some Roblox fandoms. We enjoy Hazbin Hotel but we would not say we're part of the fandom.
+* We're a huge Ragapom and Funnybunny shipper. But we like most TADC ships.
+* If you can't tell already our favorite TADC character is Pomni, but we have other favorite characters across our other fandoms.
+* You guys should like totally sign our Atabook it's so incredibly dead.
 
-<img width="2048" height="227" alt="image" src="https://github.com/user-attachments/assets/f0b36baa-e03d-4c40-a200-21437e5958ad" />
-
-Fandoms I'm in are The Amazing Digital Circus, Warrior Cats, Regretevator, Sonic the hedgehog, Pokémon, Undertale/Deltarune, and some roblox fandoms too. I like Hazbin Hotel as well but I wouldn't consider myself being a part of the fandom
-
-<img width="2048" height="154" alt="image" src="https://github.com/user-attachments/assets/cd2cd530-e5c0-4f6c-96fb-23019c4eb435" />
-
-I like most Digital Circus ships but my favorites are Ragapom, Ribbun, Abstragedy, Funnybunny, and FunnyBunnyFrogDoll
-
-<img width="1280" height="376" alt="image" src="https://github.com/user-attachments/assets/e8734997-4408-4a7b-ba7d-d4334104a902" />
+<img width="1280" height="376" alt="image" src="https://github.com/user-attachments/assets/c55f8114-186a-4326-ac5d-5e934bba8ff6" />
