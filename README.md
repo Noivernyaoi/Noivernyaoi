@@ -1,22 +1,17 @@
-<img width="2048" height="1152" alt="image" src="https://github.com/user-attachments/assets/79366108-a36b-43e9-ac2a-e2ef3385c8f9" />
+<img width="1280" height="376" alt="image" src="https://github.com/user-attachments/assets/b8e046f4-2b9e-43a5-9992-5dfb1fdd358d" />
 
-• Basic DNI criteria. I don't have a proper DNI I block freely or just won't interact. 
+Basic DNI criteria. I don't care who you are or what you did, I block freely. Don't friend me if you're under 17 years old. I don't care when your birthday is.
 
-• With that being said though; -18 please do not interact or try to befriend me. If I befriend you and then discover you're under 18 years old you will be blocked, no exceptions
+<img width="1920" height="200" alt="image" src="https://github.com/user-attachments/assets/2198cee7-8d7d-49ec-99a9-9bfb1d247dd3" />
 
-![image](https://github.com/user-attachments/assets/1700e4f9-4198-4936-8e7c-e3686ef0f0c8)
+For Pony Town: Whisper to Interact unless I'm actively moving around or talking to someone. A whisper would still be appreciated though because my chat is usually collapsed
 
-For Pony Town:
-• C + H whenever you feel like it.
-• W2I unless my status shows as online, but even then a whisper would be appreciated because I'm not always at my device or looking at the screen
-• Take inspiration whenever just don't blatantly copy my skin. 
+<img width="2048" height="227" alt="image" src="https://github.com/user-attachments/assets/f0b36baa-e03d-4c40-a200-21437e5958ad" />
 
-<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/c98231fd-621e-47cd-acaa-b2012c704072" />
+Fandoms I'm in are The Amazing Digital Circus, Warrior Cats, Regretevator, Sonic the hedgehog, Pokémon, Undertale/Deltarune, and some roblox fandoms too. I like Hazbin Hotel as well but I wouldn't consider myself being a part of the fandom
 
-• Fandoms I'm in are: The Amazing Digital Circus, Warrior Cats, Dandy's World, Regretevator, Sonic The Hedgehog, Object Shows, Pokémon, Animal Hospital, Die of Death and Undertale/Deltarune
+<img width="2048" height="154" alt="image" src="https://github.com/user-attachments/assets/cd2cd530-e5c0-4f6c-96fb-23019c4eb435" />
 
-<img width="768" height="51" alt="image" src="https://github.com/user-attachments/assets/24dd69ee-eef7-42f1-9fae-7a0c01042adc" />
+I like most Digital Circus ships but my favorites are Ragapom, Ribbun, Abstragedy, Funnybunny, and FunnyBunnyFrogDoll
 
-• More things about me is that I'm a Folly Regretevator Yume. My favorite animals are cats, tigers, guinea pigs, and foxes. I like listening to music, I don't mind the genre as long as it sounds good to me. I'm also a furry! Also my birthday is March 1st.
-
-<img width="2047" height="136" alt="image" src="https://github.com/user-attachments/assets/134090a6-7591-4b9e-855e-d0693c487017" />
+<img width="1280" height="376" alt="image" src="https://github.com/user-attachments/assets/e8734997-4408-4a7b-ba7d-d4334104a902" />
