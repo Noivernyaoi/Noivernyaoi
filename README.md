@@ -10,7 +10,7 @@
 # DNI:
 - I don't have a proper DNI list just don't be bigoted or stupid around me
 - Anyone under 16 is prohibited from speaking to or befriending me, you can sign my ata while being under this age range but don't interact with me in game
-- Don't try talking to me if you're just going to try and pick a fight with me, I will ignore pr block you
+- Don't try talking to me if you're just going to try and pick a fight with me, I will ignore or block you
 
 # Misc:
 * We're in a lot of fandoms, but our main ones are TADC, Sonic the Hedgehog, My Little Pony, Undertale/Deltarune, Warrior Cats, and some Roblox fandoms. We enjoy Hazbin Hotel but we would not say we're part of the fandom
