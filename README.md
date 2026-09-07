@@ -2,10 +2,10 @@
 
 # ABT ME:
 * I am a DID SYS, Our main host is a Pomni Fictive
-* Read my strawpage!! It is changing and updating every day
 * I am a Yumeshipper. I do not gaf about doubles I'm not braindead
 * I am Profic. if you do not like that then feel free to block me I don't care
 * Whisper to interact with me, my chat is usually collapsed and I'm usually doing other things while sitting on the game
+* We have a very short temper, we get frustrated, annoyed, and angry easily, so please Ineract with Caution when talking or interacting with us
 
 # DNI:
 - I don't have a proper DNI list just don't be bigoted or stupid around me
