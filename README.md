@@ -15,7 +15,6 @@
 # Misc:
 * We're in a lot of fandoms, but our main ones are TADC, Sonic the Hedgehog, My Little Pony, Undertale/Deltarune, Warrior Cats, and some Roblox fandoms. We enjoy Hazbin Hotel but we would not say we're part of the fandom
 * We're a huge Ragapom and Funnybunny shipper. But we like most TADC ships
-* If you can't tell already our favorite TADC character is Pomni, but we have other favorite characters across our other fandoms
-* You guys should like totally sign our Atabook it's so incredibly dead
+* You should totally draw on our [Strawpage](https://noivernyaoi.straw.page/) and sign our [Atabook](https://noivernyaoi.atabook.org/)
 
 <img width="1280" height="376" alt="image" src="https://github.com/user-attachments/assets/c55f8114-186a-4326-ac5d-5e934bba8ff6" />
