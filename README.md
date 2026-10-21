@@ -1,4 +1,4 @@
-<img width="1280" height="376" alt="image" src="https://github.com/user-attachments/assets/aa6471b9-205e-47ae-ba8a-d55dee1407af" />
+<img width="2048" height="737" alt="image" src="https://github.com/user-attachments/assets/b5670725-f50d-479b-b18e-c95e0eb42ae1" />
 
 # ABT ME:
 * We are a DID Sys with about 50+ alters
@@ -17,4 +17,4 @@
 * We're a huge Ragapom and Funnybunny shipper. But we like most TADC ships
 * You should totally draw on our [Strawpage](https://puppypilledpomni.straw.page/) and sign our [Atabook](https://gourdyspumpkinpatch.atabook.org)
 
-<img width="1280" height="376" alt="image" src="https://github.com/user-attachments/assets/c55f8114-186a-4326-ac5d-5e934bba8ff6" />
+<img width="1280" height="368" alt="image" src="https://github.com/user-attachments/assets/42d284d8-a01c-4651-adc4-18e3c425a750" />
