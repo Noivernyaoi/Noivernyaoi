@@ -1,6 +1,6 @@
-<img width="1280" height="382" alt="image" src="https://github.com/user-attachments/assets/963c266d-0b23-49a3-91bd-b8ace7489685" />
 
-# ABT ME:
+
+# About Me: 
 * We are a DID Sys with about 50+ alters
 * We are a Yumeshipper. Our F/Os as of right now are Folly (Regretevator), Fangsworth (Regretevator), Jester (Duffy's Digital Circus), and Ragatha (TADC). We do not care about doubles at all, other Yumes can interact freely
 * We are Profic. if you do not like that then feel free to block us, we don't care
@@ -17,4 +17,4 @@
 * We're a huge Ragapom and Funnybunny shipper. But we like most TADC ships
 * You should totally draw on our [Strawpage](https://puppypilledpomni.straw.page/) and sign our [Atabook](https://gourdyspumpkinpatch.atabook.org)
 
-<img width="1280" height="368" alt="image" src="https://github.com/user-attachments/assets/42d284d8-a01c-4651-adc4-18e3c425a750" />
+<img width="1024" height="265" alt="image" src="https://github.com/user-attachments/assets/9ce51233-1681-41f1-8d5f-08b550919c1f" />
