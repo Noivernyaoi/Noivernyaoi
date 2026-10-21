@@ -1,4 +1,4 @@
-<img width="2048" height="737" alt="image" src="https://github.com/user-attachments/assets/b5670725-f50d-479b-b18e-c95e0eb42ae1" />
+<img width="1280" height="382" alt="image" src="https://github.com/user-attachments/assets/963c266d-0b23-49a3-91bd-b8ace7489685" />
 
 # ABT ME:
 * We are a DID Sys with about 50+ alters
