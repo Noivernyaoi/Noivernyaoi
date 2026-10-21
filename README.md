@@ -1,4 +1,4 @@
-
+<img width="1024" height="265" alt="image" src="https://github.com/user-attachments/assets/afda0f22-e7e5-41e1-96ae-240f8a7c42f4" />
 
 # About Me: 
 * We are a DID Sys with about 50+ alters
