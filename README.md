@@ -5,7 +5,7 @@
 * We are a Yumeshipper. Our F/Os as of right now are Folly (Regretevator), Fangsworth (Regretevator), Jester (Duffy's Digital Circus), and Ragatha (TADC). We do not care about doubles at all, other Yumes can interact freely
 * We are Profic. if you do not like that then feel free to block us, we don't care
 * Whisper to interact with us, our chat is usually collapsed and we're usually doing other things while sitting on the game
-* We have a very short temper, we get frustrated, annoyed, and angry easily, so please Ineract with Caution when talking or interacting with us
+* We have a very short temper, we get frustrated, annoyed, and angry easily, so please Interact with Caution when talking or interacting with us
 
 # DNI:
 - We don't have a proper DNI list just don't be bigoted or stupid around us
