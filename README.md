@@ -2,6 +2,7 @@
 
 # About Me: 
 * We are a DID Sys with about 50+ alters
+* We have OCD, BPD, ADHD, Autism, and really bad Anxiety. Please be patient with us.
 * We are a Yumeshipper. Our F/Os as of right now are Folly (Regretevator), Fangsworth (Regretevator), Jester (Duffy's Digital Circus), and Ragatha (TADC). We do not care about doubles at all, other Yumes can interact freely
 * We are Profic. if you do not like that then feel free to block us, we don't care
 * Whisper to interact with us, our chat is usually collapsed and we're usually doing other things while sitting on the game
